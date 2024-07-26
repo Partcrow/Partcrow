@@ -3,3 +3,4 @@
 ![](https://media.discordapp.net/attachments/804978370050916362/1045039591809355826/ezgif.com-gif-maker_4.gif?ex=66a49036&is=66a33eb6&hm=6ddbedd65facb58f0f1c3ca1c6282639147f4a15c3c283c27ca80949e722fef7&)
 </p>
 
+someone tell me how to center this shit...

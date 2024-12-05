@@ -1,1 +1,1 @@
-![](https://cdn.discordapp.com/attachments/1229572430843084800/1302380484751261706/dc00709c.png?ex=673516d8&is=6733c558&hm=e4942fbfcb22c7305fc49be39fc8a287d20ee276b09342a592cef7c4aefae01c&)
+![](https://files.catbox.moe/xxpeku.PNG)
